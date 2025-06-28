@@ -1,1 +1,1 @@
-# Sandiso12.github.io
+# SmartTechLife.github.io
